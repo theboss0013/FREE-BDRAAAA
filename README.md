@@ -1,2 +1,3 @@
-# FREE-BDRAAAA
-5YH
+# Free-bdr
+rdp
+bdass
